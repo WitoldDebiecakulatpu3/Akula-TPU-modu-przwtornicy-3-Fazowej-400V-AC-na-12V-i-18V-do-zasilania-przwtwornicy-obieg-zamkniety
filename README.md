@@ -1,0 +1,1 @@
+# Akula-TPU-modu-przwtornicy-3-Fazowej-400V-AC-na-12V-i-18V-do-zasilania-przwtwornicy-obieg-zamkniety
